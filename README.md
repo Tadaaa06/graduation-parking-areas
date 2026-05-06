@@ -1,1 +1,0 @@
-# graduation-parking-areas
